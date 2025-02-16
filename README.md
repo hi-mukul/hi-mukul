@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Android, DSA**
 
-- 📫 How to reach me **mukulraj7248@gmail.com**
+- 📫 How to reach me **mukulraj.2201222cs@iiitbh.ac.in**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
